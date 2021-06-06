@@ -1,1 +1,1 @@
-stefintomy.github.io/
+stefintomy.github.io
